@@ -69,6 +69,6 @@ CRED’s homepage is fast and confident — bold design, clear value prop. The k
 
 ## Outreach
 
-- Sent: — → Kunal Shah (Founder), LinkedIn DM
+- Sent: 2026-10-17 → Kunal Shah (Founder), LinkedIn DM (delivered, confirmed in thread)
 - Reply: —
-- Follow-up: —
+- Follow-up: — (send in 4-5 days if no reply)
